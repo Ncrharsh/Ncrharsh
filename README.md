@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @Ncrharsh
-- 👀 I’m interested in clubin
 - 🌱 I’m currently learning nthng
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me ig:ncr.harsh51
